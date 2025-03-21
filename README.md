@@ -1,1 +1,1 @@
-# bayusyauqi3.github.io
+# bayusyauqi3.com
